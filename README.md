@@ -1,2 +1,0 @@
-# davidchu
-david chu resturant
